@@ -1,1 +1,1 @@
-# Yaz-l-m-M-hendisli-i-G-ncel-Konular
+# Yazilim-Muhendisligi-Guncel-Konular
